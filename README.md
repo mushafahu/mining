@@ -1,0 +1,2 @@
+# mining
+money mining 
